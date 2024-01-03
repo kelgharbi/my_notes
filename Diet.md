@@ -25,7 +25,7 @@ Chickpeas
 Lentils
 Beans (kidney, pinto and white)
 Whole grains
-Apples, blueberries, almonds and pistachios
+Pommes, myrtilles, amandes and pistaches
 
 2000kcal for example
 120~180g of protain
